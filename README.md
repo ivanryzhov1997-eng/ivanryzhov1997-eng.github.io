@@ -1,1 +1,0 @@
-# ivanryzhov1997-eng.github.io
